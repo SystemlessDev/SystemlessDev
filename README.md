@@ -1,1 +1,1 @@
-[![forthebadge](https://forthebadge.com/images/badges/you-didnt-ask-for-this.svg)](https://forthebadge.com)
+Get Essential at [essential.gg](https://essential.gg/)
